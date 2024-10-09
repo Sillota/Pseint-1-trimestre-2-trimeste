@@ -1,2 +1,1 @@
-![image](https://github.com/user-attachments/assets/414c06f6-a2f0-4123-a1a6-0a80f19f9410) Las programaciones tendran que ser iniciadas con el programa
-PSeint
+![image](https://github.com/user-attachments/assets/12eda708-a75b-4f70-9305-28319a690e37)
